@@ -1,1 +1,1 @@
-# kc-eight-cant-wait
+# Wide-ranging policies give Kansas and Missouri cops discretion for violence
